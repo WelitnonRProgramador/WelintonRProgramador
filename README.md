@@ -19,5 +19,7 @@
 
 ## contatos
 
- [![E-mail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](welcom_sp4@hotmail.com/)
+ welcom_sp4@hotmail.com
 
+### Apaixonado por programação 
+#### Morreirei com minhas lembranças pois meus sonhos serão realizados 
